@@ -12,7 +12,6 @@
 
 - 📫 How to reach me *pranavshinde.as@gmail.com*
 
-- ⚡ Fun fact *Laughs at own jokes.*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
